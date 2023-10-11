@@ -6,8 +6,6 @@
 
 💞️ I’m looking to collaborate on projects related to data analysis, machine learning, and data visualization. I believe in the power of teamwork to create innovative solutions.
 
-📫 How to reach me:
-- Email: abhijeeth_b3u83@tataneuskills.com
 
 Let's connect and explore the world of data together!
 
