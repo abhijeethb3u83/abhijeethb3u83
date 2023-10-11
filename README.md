@@ -8,7 +8,6 @@
 
 📫 How to reach me:
 - Email: abhijeeth_b3u83@tataneuskills.com
-- GitHub: (https://github.com/abhijeethb3u83)
 
 Let's connect and explore the world of data together!
 
